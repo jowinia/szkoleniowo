@@ -1,1 +1,2 @@
 # szkoleniowo
+JAKAŚ KURWA ZMIANA!!!
